@@ -1,0 +1,1 @@
+# MinorikVic.github.io
